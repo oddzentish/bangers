@@ -74,6 +74,9 @@
 ## EuphoricHardStyleZ
 > [Playlist](https://www.youtube.com/user/EuphoricHardStyleZ/playlists)
 
+## Random Playlist
+> [fak](https://youtube.com/playlist?list=PLI2Y-84_0CjVOAufzyqHMT51BzE1Vy68E)
+
 °。°。°。°。°。°。°。゜。°。°。°。
 # SOUNDCLOUD
 > [⛈](https://soundcloud.com/ext-cookiez/sets/osee16sv0r13?si=ac5b22bad71f47b6a632c9cded3d0e49)
