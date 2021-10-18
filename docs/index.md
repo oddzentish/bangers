@@ -18,7 +18,7 @@
 - [𝒮𝐸𝒳~❁~𝒯𝐸𝒦](https://youtube.com/playlist?list=PLTwLDJl0Tns0W7HUtdBxFdOWnOXtwkw5l)
 
 ### bulma
-- 🌺 [^ _ v](https://youtube.com/playlist?list=PLRTmPyJoUCsilhMsxQrf2gsZkc4l6yCWa)
+- 🌺 [OwO](https://youtube.com/playlist?list=PLRTmPyJoUCsilhMsxQrf2gsZkc4l6yCWa)
 
 ### lightcore1
 - 🌺[ 光艺术](https://youtube.com/playlist?list=PLkPdrjrOokC9WYn9BMVe-JdcizBU2I7Sg)
