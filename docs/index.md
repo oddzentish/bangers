@@ -32,6 +32,9 @@
 - ###  lightcore1
   - 🌺[ 光艺术](https://youtube.com/playlist?list=PLkPdrjrOokC9WYn9BMVe-JdcizBU2I7Sg)
 
+- ### Envy
+  - [top secret do not touch unless in mental decline](https://youtube.com/playlist?list=PL0zKbhTH_JQndObCdHVK5HTmfZyDZlb41)
+
 - ###  ABSENTVX
   - 🌺[ everything](https://youtube.com/playlist?list=PLjO4NiJjMje92A4E740FqD-Wql_rsWBDL)
 
@@ -48,6 +51,7 @@
   - [˗ˏˋ 아리 여신 ˎˊ˗](https://youtube.com/playlist?list=PLV4HFv-t4bKCwa_VyHwww2ApDT0nO9uIG)
 
   - [네가 내 꿈에 나왔어。。。](https://youtube.com/playlist?list=PLV4HFv-t4bKBSEr7QB0itf8uXCclFQJjE)
+
 
 - ###  Kloudz
   - 🌺 [Favorites of all Time](https://youtube.com/playlist?list=PLBTAY2snT7uHz3X5mkxQNMphXu2EvsvpV)
