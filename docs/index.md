@@ -11,9 +11,6 @@
 ## 𝕃𝕖𝕘𝕖𝕟𝕕
 
 - 🌺 ℝ𝕖𝕔𝕠𝕞𝕞𝕖𝕟𝕕𝕖𝕕 𝕡𝕝𝕒𝕪𝕝𝕚𝕤𝕥𝕤
-- 🤖 ℍ𝕒𝕣𝕕𝕤𝕥𝕪𝕝𝕖
-- 🥖 𝔽𝕣𝕖𝕟𝕔𝕙𝕔𝕠𝕣𝕖
-- ℂ𝕆𝕥𝕙𝕖𝕣𝕤 𝔼𝕞𝕠𝕛𝕚 𝕔𝕠𝕞𝕚𝕟𝕘 𝕤𝕠𝕠𝕟
 
 ##  𝕐𝕠𝕦𝕥𝕦𝕓𝕖
 
@@ -23,17 +20,23 @@
 - ###  ungtyrker
   - 🌺 [yo :)](https://youtube.com/playlist?list=PLBUKAh5mLY_5dDxbX9h7miUIG0sMqL4_W)
 
-- ###  Depression
-  - [𝒮𝐸𝒳~❁~𝒯𝐸𝒦](https://youtube.com/playlist?list=PLTwLDJl0Tns0W7HUtdBxFdOWnOXtwkw5l)
-
 - ###  bulma
   - 🌺 [OwO](https://youtube.com/playlist?list=PLRTmPyJoUCsilhMsxQrf2gsZkc4l6yCWa)
 
 - ###  lightcore1
   - 🌺[ 光艺术](https://youtube.com/playlist?list=PLkPdrjrOokC9WYn9BMVe-JdcizBU2I7Sg)
 
+- ### Affected
+  - [★✳asmr sounds✳★](https://youtube.com/playlist?list=PLFSeO9P8Mtox51RLqPmpoLvTU7xFar1NV)
+
 - ### Envy
   - [top secret do not touch unless in mental decline](https://youtube.com/playlist?list=PL0zKbhTH_JQndObCdHVK5HTmfZyDZlb41)
+
+- ###  Depression
+  - [𝒮𝐸𝒳~❁~𝒯𝐸𝒦](https://youtube.com/playlist?list=PLTwLDJl0Tns0W7HUtdBxFdOWnOXtwkw5l)
+
+- ### Bede
+  - [𝕋ℝ𝕀ℙ 𝕋𝕆 ℍ𝔼𝔸𝕍𝔼ℕӠӠӠ](https://youtube.com/playlist?list=PLUqJLag_SWt9z3G-XshYA4EP4fh7ZmVrI)
 
 - ###  ABSENTVX
   - 🌺[ everything](https://youtube.com/playlist?list=PLjO4NiJjMje92A4E740FqD-Wql_rsWBDL)
@@ -44,6 +47,11 @@
   - 🌺[ ｎｅｖｅｒｌａｎｄ . Ӡ Ӡ Ӡ . ☾](https://youtube.com/playlist?list=PLdIDJawYJSxWzXIJV1WmOvV20ZU5ye2LJ)
 
   - [tired](https://youtube.com/playlist?list=PLdIDJawYJSxVyTuflOiKIxVfczb6h5SFA)
+
+- ### Rvsip†
+  - [𝒳I𝒳I𝒳𝒞𝐸𝐿𝐸𝒮𝒯𝐼𝒜𝐿𝒳I𝒳I𝒳](https://youtube.com/playlist?list=PLgkzCjLnQg0Mzfx4r7oPNM_cleQ-iwAyL)
+  
+  - [EVERYTHING](https://youtube.com/playlist?list=PLgkzCjLnQg0MiPtwHIEFrvxYVyI6XzrW6)
 
 - ###  sui
   - 🌺[ ★𝙒𝙊𝙇𝙍𝘿𝙀𝙉𝘿𝙀𝙍★](https://youtube.com/playlist?list=PLV4HFv-t4bKCcVj0QSQk1D-cOiK38Nn0Q)
@@ -100,6 +108,27 @@
 
   - [Secret music](https://youtube.com/playlist?list=PLd1lRhpxu6)
 
+- ### cream
+  - 🌺 [tekk](https://youtube.com/playlist?list=PLDUD6riLGrDaSRaFAd-2iStn6BZIrECBM)
+  
+  - [333%](https://youtube.com/playlist?list=PLDUD6riLGrDbcI_TCndcxZV5QQ11WB_q_)
+  
+  - [all uploads](https://youtube.com/playlist?list=PLDUD6riLGrDY-pPoCZHzJUUCi4u_D9gF1)
+  
+  - [🧡💙🧡💙🧡💙🧡](https://youtube.com/playlist?list=PLDUD6riLGrDYuEL0h3nIV1c5nOwck_85j)
+  
+  - [ミ★](https://youtube.com/playlist?list=PLDUD6riLGrDbNRb1eClxVDx6eHJLpIBAI)
+  
+  - [lost in the flow with cream](https://youtube.com/playlist?list=PLDUD6riLGrDbuVN43l64y2wwcsxbS2FAp)
+  
+  - [FEEL MY BICEP](https://youtube.com/playlist?list=PLDUD6riLGrDbkGZ-DDobov6YNe-VgTtQ3)
+  
+  - [daemonDj](https://youtube.com/playlist?list=PLDUD6riLGrDbbE_6MLWu9f5GekrlLWwLC)
+  
+  - [dnb mixes](https://youtube.com/playlist?list=PLDUD6riLGrDY-4uQYGBR63_mq0LC5JFVK)
+  
+  - [liquid dnb](https://youtube.com/playlist?list=PLDUD6riLGrDbk4SGGDtev0G4IW4XyNa1l)
+
 - ###  Dansing Monster
   - [Dansing Monster](https://youtube.com/playlist?list=PLnyLLWouN3xW2BVuT4cNAva--XjcjG7VL)
 
@@ -107,7 +136,35 @@
   - [Playlist](https://www.youtube.com/user/EuphoricHardStyleZ/playlists)
 
 - ###  Random Playlist
+  - 🌺 [GRILUJEME KONE](https://youtube.com/playlist?list=PLQMK7w-pUT-2TU28fvcOGsUANbo7_tB-C)
+  
+  - 🌺 [Dipper's symphony](https://youtube.com/playlist?list=PL1CPSucmTsiMpWf_3mdxbmB_e_l5hJdd_)
+  
+  - 🌺 [Ξ·.¸♡¸.·𝓢𝓮𝙘𝓻𝓮𝓽·.¸♡¸.·Ξ](https://youtube.com/playlist?list=PLjdRAQ9W4wSY8a8zIjU_-xWJmiCcoNzaq)
+
+  - 🌺 [CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX CSX](https://youtube.com/playlist?list=PL6y7FTy-cS9n-2P4vTPkcvUoBoohI0SPf)
+  
+  - 🌺 [Hatred213721372137](https://youtube.com/playlist?list=PL6clfgfArKXlcHWcMjxubx1avRmHXeUPo)
+  
+  - 🌺 [bangers](https://youtube.com/playlist?list=PL1TLSSP7916rOL86SvQ3ezoeZA4zNPeCX)
+  
+  - [☹ sad](https://youtube.com/playlist?list=PLxqHVNgDmVsaEUQg90Vl8Q58NVa2adiUt)
+  
+  - [͎ ͎D͎y͎i͎n͎g͎ ͎ ͎a͎l͎o͎n͎e͎ ͎ i͎n͎ ͎ t͎h͎e͎ ͎ r͎a͎i͎n͎ ͎](https://youtube.com/playlist?list=PLMy238yJMGBuT26cPYLBSSADPquhfvEAA)
+  
+  - [x_x](https://youtube.com/playlist?list=PLIfJr38xGDy5q4m-aPbJIPwv5g274pBzT)
+  
   - [fak](https://youtube.com/playlist?list=PLI2Y-84_0CjVOAufzyqHMT51BzE1Vy68E)
+  
+  - [Lulu 4 Affect UwU](https://youtube.com/playlist?list=PLmZ-SP804fLXmZyYmeRYelVYShJvUTERW)
+  
+  - [💖](https://youtube.com/playlist?list=PL8FFYck49bGxdB_gY2GpN_F1LZ44WoWYZ)
+  
+  - [`][][][][]]][]][][]`](https://youtube.com/playlist?list=PLGOQ_GLxuCl8IvfOsVFakJ-7TqnvuyRQJ)
+  
+  - [h](https://youtube.com/playlist?list=PLw0hAq-8VKRAqI3x2PyrcHvS9BG_P7Fsv)
+  
+  - [new uptempo/hardcore !! :-)](https://youtube.com/playlist?list=PLhiIvbFG5IHh1NpkRTLrEwgNKJdjvgPTn)
 
 °。°。°。°。°。°。°。゜。°。°。°。
 ## 𝕊𝕠𝕦𝕟𝕕𝕔𝕝𝕠𝕦𝕕
@@ -140,7 +197,7 @@
 ## 𝕃𝕖𝕒𝕘𝕦𝕖 𝕊𝕥𝕣𝕖𝕒𝕞𝕖𝕣
   - ###  🌺 [ratirl Playlist](https://youtube.com/playlist?list=PLy6N_9yB8Qwy6LL0J7zLUyW8XNX-BPeDl)
   
-  - ###  🌺🥖 [PSZ Playlist](https://youtube.com/playlist?list=PLOJH4fJ3_716A0WHi1wTNDi4yaGuT2Ma0)
+  - ###  🌺 [PSZ Playlist](https://youtube.com/playlist?list=PLOJH4fJ3_716A0WHi1wTNDi4yaGuT2Ma0)
   
   - ###  🌺 [RANGERZX Playlist   - Electronic variety](https://youtube.com/playlist?list=PLKuoegqr5HTlMAJjMF1y80GWf5nH77kD8)
 
@@ -153,3 +210,5 @@
   - ###  [Dzukill Playlist](https://youtube.com/playlist?list=PLUBIsOBogkUT_1PNTkky5xPPyzGwwiwUx)
 
   - ###  [Drut Playlist](https://youtube.com/playlist?list=PLN7UHh1rYr4jNMyZQKlWOUuc5RyUlSt49)
+
+  - ###  [Katten stream1](https://youtube.com/playlist?list=PLPyjTqZZwUkGvFlaAXieDEDfUv1Ui7J2r)
