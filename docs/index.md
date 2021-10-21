@@ -212,3 +212,85 @@
   - ###  [Drut Playlist](https://youtube.com/playlist?list=PLN7UHh1rYr4jNMyZQKlWOUuc5RyUlSt49)
 
   - ###  [Katten stream1](https://youtube.com/playlist?list=PLPyjTqZZwUkGvFlaAXieDEDfUv1Ui7J2r)
+
+
+。°。°。°。°。°。°。°。°。°。°。°
+
+## 𝕊𝕡𝕠𝕥𝕚𝕗𝕪
+
+- ### ZYZZ	
+	- [Zyzz - Official Playlist](https://open.spotify.com/playlist/2UOWGGwkNl04RDqffCizpW?si=62526692c1884c3b)
+	
+	- [ZYZZ WILL NEVER DIE](https://open.spotify.com/playlist/1zVsiKtzxzRPlZtwVhg7Lk?si=b3da632c754a4c8f)
+	
+	- [Fuarkstyle](https://open.spotify.com/playlist/7ok4oNLocF0ILkzY1Zk34m?si=ea0d268ee2c742be)
+
+- ### Hardstyle
+    - [DOINB RYZE HACK](https://open.spotify.com/playlist/3cmepTqCSZFPUxt6V6nmSI?si=e70521d1de3e416e)
+	
+	- [Hardstyle Hits](https://open.spotify.com/playlist/2COTVsniS7XBWIWCWOJicr?si=2d01d5db6071413a)
+	
+	- [Its Ya Boy](https://open.spotify.com/playlist/48dmc7BphlkmFkg4OePHO9?si=8908416418174114)
+	
+	- [The HARDSTYLE](https://open.spotify.com/playlist/6MAcWabWTrngKVxNTL0Xl4?si=e92b548819244972)
+	
+	- [Hardstyle by Q-dance](https://open.spotify.com/playlist/2LVvgP7VJN5xAkmPdl5J4q?si=96a4937d61fd48e7)
+	
+	- [HARDSTYLE WORKOUT](https://open.spotify.com/playlist/4FK8PNOzHWhZbgxvBIWxfr?si=d37d3b2424c14fa8)
+	
+	- [Hardstyle Bangers](https://open.spotify.com/playlist/37i9dQZF1DX0pH2SQMRXnC?si=a75b35b7e4084a12)
+	
+	- [hardSTYLE](https://open.spotify.com/playlist/5L6cui9sgESPj0gPXmKwTc?si=64cc3b0708b24491)
+	
+	- [Gym hardstyle](https://open.spotify.com/playlist/3M5bphHgTe5oTebqMUkczJ?si=49437e0df7a046f3)
+	
+	- [sad lofi anime girl](https://open.spotify.com/playlist/4ECqfdS3fF2rHxTWnzY8su?si=c7c9b140d1b04864)
+	
+	- [100% Sickcunt Music](https://open.spotify.com/playlist/49k4BWA8O0kThSyUyYQhhp?si=3257c7c1715f4a7e)
+	
+	- [FULL POWER](https://open.spotify.com/playlist/1JFKWrWQdAteLqIktlIIdF?si=1001b5d524ab4aef)
+	
+- ### House
+	- [Lithuania HQ - Night](https://open.spotify.com/playlist/767NOl8qsCSifII9rN5yKx?si=7d1db0bc644748c4)
+	
+	- [Lithuania HQ](https://open.spotify.com/playlist/17MNUzpBEF3ba4u5GTpCx6?si=76e658cd2ded42de)
+	
+	- [Lithuania HQ Party](https://open.spotify.com/playlist/72oB8DXjLzLNTQPc9yLHdY?si=85f95e80ac87471a)
+	
+	- [Deep House](https://open.spotify.com/playlist/4CoVSgA7lPiTQEFxgUrCM0?si=5f01b61355ca4cc7)
+	
+	- [Melbourne Bounce](https://open.spotify.com/playlist/0SPPuDWQ5yqRUFcsosXK7C?si=5f8f5aacb8e14106)
+	
+	- [SLAP!](https://open.spotify.com/playlist/37i9dQZF1DX97SIuADeA1Y?si=eeb0400996f84c10)
+	
+	- [Best of SLAP](https://open.spotify.com/playlist/5VXwUIjdjxSvYcGo7KsDCn?si=9dac8490ca1b4d8e)
+	
+	- [Car Music](https://open.spotify.com/playlist/1QNIPdWMxKHBYED5ZXfNVU?si=4d83c82c44954af7)
+	
+	- [Vlada Ultramix](https://open.spotify.com/playlist/7g8RziIySo7KwR8hezi8e5?si=597aa92cefa448bc)
+	
+	- [Dance Music 2021](https://open.spotify.com/playlist/5tkXZ9sMI2xAGsJXb3EuoK?si=d516a7ac62654e81)
+	
+	- [Deep House 2021](https://open.spotify.com/playlist/7povSFJZmto2LZUL77RXPg?si=108d5902e14b4f53)
+	
+	- [Frequency Music](https://open.spotify.com/playlist/7Ce17eATYzXDo0NeOAygRN?si=d3e1fd33ed354a20)
+
+
+- ### Psytrance
+	- [PSYTRANCE](https://open.spotify.com/playlist/313gm2OI6NXUHY4OIJ57ea?si=7e9cfcb3a9b5486d)
+	
+	- [Hard Psy Favorites](https://open.spotify.com/playlist/33m9q3CXZ0FDtAH7api2Jv?si=f99417b109c54af6)
+	
+	- [Best of PsyTrance](https://open.spotify.com/playlist/5PpLEyVEGJWhybBaZoGRQ3?si=65f9e0871faf4db5)
+	
+	- [PSZ PSYTRANCE](https://open.spotify.com/playlist/64uDcllVshmD98cl3ojGbk?si=b66f8758175d4d15)
+	
+	- [PSYTRANCE SUPERNOVA](https://open.spotify.com/playlist/37i9dQZF1DWXWbLEOaHnU3?si=a4bd4414eeea4dce)
+	
+	- [PROGSTYLE](https://open.spotify.com/playlist/0IJ3sneJIOPkRJ139a194k?si=b9e12bb26ad4472b)
+	
+	- [GOA/PSYTRANCE](https://open.spotify.com/playlist/3ZG1CAQ811cCiSce3J0uz5?si=a56ac50545144890)
+	
+	- [PSYTRANCE/TRANCE](https://open.spotify.com/playlist/5LYkaLqDJXIDP2giSxqTjv?si=5772ec209f1341ad)
+	
+	- [PSYTRANCE TOP MUSIC](https://open.spotify.com/playlist/7uRj2VaGrM9z9xPiB2cwIK?si=7bab9c2abd194706)
