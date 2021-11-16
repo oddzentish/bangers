@@ -53,6 +53,10 @@
   
   - [EVERYTHING](https://youtube.com/playlist?list=PLgkzCjLnQg0MiPtwHIEFrvxYVyI6XzrW6)
 
+  - [RV's thoughts](https://youtube.com/playlist?list=PLgkzCjLnQg0Mkv_Oc8nmTf1HtV0UgkgvV)
+
+  - [𝒮𝐸𝒳 𝐼𝒩 𝒯𝐻𝐸 ★·.·¯·.·★𝐎𝐂𝔼𝔸𝐍★·.·¯·.·★](https://youtube.com/playlist?list=PLgkzCjLnQg0Nd1_RXJI17r3YpIevXTA2r)
+
 - ###  sui
   - 🌺[ ★𝙒𝙊𝙇𝙍𝘿𝙀𝙉𝘿𝙀𝙍★](https://youtube.com/playlist?list=PLV4HFv-t4bKCcVj0QSQk1D-cOiK38Nn0Q)
   
@@ -147,6 +151,8 @@
   - 🌺 [Hatred213721372137](https://youtube.com/playlist?list=PL6clfgfArKXlcHWcMjxubx1avRmHXeUPo)
   
   - 🌺 [bangers](https://youtube.com/playlist?list=PL1TLSSP7916rOL86SvQ3ezoeZA4zNPeCX)
+
+  - 🌺 [dangerous](https://youtube.com/playlist?list=PL7Ugkln2Vx54K_naHkjfI9Ue926pA-WxW)
   
   - [☹ sad](https://youtube.com/playlist?list=PLxqHVNgDmVsaEUQg90Vl8Q58NVa2adiUt)
   
@@ -165,6 +171,7 @@
   - [h](https://youtube.com/playlist?list=PLw0hAq-8VKRAqI3x2PyrcHvS9BG_P7Fsv)
   
   - [new uptempo/hardcore !! :-)](https://youtube.com/playlist?list=PLhiIvbFG5IHh1NpkRTLrEwgNKJdjvgPTn)
+  
 
 °。°。°。°。°。°。°。゜。°。°。°。
 ## 𝕊𝕠𝕦𝕟𝕕𝕔𝕝𝕠𝕦𝕕
@@ -201,9 +208,11 @@
   
   - ###  🌺 [RANGERZX Playlist   - Electronic variety](https://youtube.com/playlist?list=PLKuoegqr5HTlMAJjMF1y80GWf5nH77kD8)
 
-  - ###  [RANGERZX Playlist   - Calm](https://youtube.com/playlist?list=PLKuoegqr5HTlCaaXkGEcHFNd4FZsVhRHc)
+  - ###  🌺 [PERMABAN Playlist](https://youtube.com/playlist?list=PLZW5bl8Qpvk0yx0w9cNoRUtdm8zKuZIqy)
 
-  - ###  [PERMABAN Playlist](https://youtube.com/playlist?list=PLZW5bl8Qpvk0yx0w9cNoRUtdm8zKuZIqy)
+  - ###  [RANGERZX Playlist   - Calm](https://youtube.com/playlist?list=PLKuoegqr5HTlCaaXkGEcHFNd4FZsVhRHc)
+  
+  - ###  [Kesha Playlist](https://youtube.com/playlist?list=PLPy6Ka57myt782w17YOhrAI1yXx79u6vC)
 
   - ###  [YamatosDeath1 Playlist](https://youtube.com/playlist?list=PLK60xqOiftyBLpxUAabDa5-C03aWCDw3T)
 
